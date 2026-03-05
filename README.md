@@ -1,2 +1,3 @@
 # CMPG214_Assignment_1
 My CMPG214 Infographic 
+The hardest part of this assignment was deciding on the overall design of the infographic. Initially, I wanted to create a much larger infographic that included things like my hobbies and other personal details. However, after rereading the assignment, I realised it would look more like a personal poster rather than a visual argument. I therefore decided to keep it focused on what was required and decorated it with musical elements instead. I truly love my infographic because I believe it shows that I am an outgoing and bold person whose identity is strongly connected to music and communication.
